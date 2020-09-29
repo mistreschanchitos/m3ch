@@ -1,1 +1,1 @@
-# mistrechanchitos.github.io/m3ch
+# mistreschanchitos.github.io/m3ch
